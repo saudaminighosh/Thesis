@@ -1,1 +1,1 @@
-[Download the PDF](Final_report_Mini_Project_undergraduate_Thesis_Saudamini_Ghosh.pdf)
+[Download Final Thesis Project](Final_report_Mini_Project_undergraduate_Thesis_Saudamini_Ghosh.pdf)
